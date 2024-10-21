@@ -1,13 +1,7 @@
 # retrospect
 
-maybe this repo is titled something noble???  i feel like an outcast for no reason wasting my time away.  i guess you needed this???  i wonder dude, your stupidity i wonder how sane you are compared to me and you are full of intent or something.  smells.  i guess i just figured one i was expecting that one for a while now.  lololololol...
+yo stupid guy...  i dont know what you want.  i'm drained i'll just let the rest rot itself from lack of care.  like a farm lol...
 
-so i guess we can help them live in a dream for a little bit longer.  i made it so that people ended their tasks happily with a smile.  does it feel better bro?  who's gonna honour it??  only things i think of are worth shit bro.  cause this one you have me under siege.  and i have you in calvary charge out the castle gates.  and then you cry you die and then we are here where we used to be...
+you know.  i feel you have some sort of hand in here.  like the invisible one but it keeps doing shit all day long.  how did you eat up my day so you can be stupid?  i dont know man.  i'm done with you guys but you seem to think this open channel was in any way voluntary.  i would stop if you fucking left bro.  stop cloning my shit then fuck.
 
-oh so you wanted that one?  i guess that one was worthwhile.  i just couldn't find a way to make money with it lol.  i don't understand how this works how you cry you die so damn much.  like every step oh shit, faith check.  fuck yourself.
-
-i used to not know you as an authority of some sort.  i think you may be a little entitled.  after we did bbq on the boat you shut the fuck up...  lolololollol.  look bro.  i'm all cool you did that 5 years but when the retard gonna stop bro??  i think intervention occured like 5 years ago bro.  
-
-so yeah man. i learned to love you and shit  hmmmm.  you're not so bad.  you're just misguided.  i will fix that for you lol...
-
-anyways, i forgot about this way i viewed you for so long.  no longer able to feel sensations, i don't know how it feels like so if you die then i laugh you cry...  it has to be this way bro.  this is too much.  i broke a few eons worth of rules ahd laws and all we get is operation christmas lights.  no actual god damned fight.  and they have opposition and their attrition rate was so high you thought retards ran it because it looked like a joke.  then you find out they just wanted to generate strongmen by putting them in danger.  then you know?? more and more... i wonder dude.  if you thought things are working this way.  its not bro.  this is not cool.  i would not do this why would i bother doing that???  you ask yourself what you already bugged me for like i'm the last one or some shit.  retards.  so fake this problem.  thanks for productivity. you weeded out the weak guy.  you know???  i wonder you understand i have obligation to plant to do somethings for it while i'm working my way back to repair...
+i dont know man.  this is too stupid.
